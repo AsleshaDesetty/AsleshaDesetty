@@ -1,5 +1,4 @@
-## Aslesha Desetty
-**The Data Freak**
+![Banner](https://github.com/AsleshaDesetty/AsleshaDesetty/blob/main/Make%20your%20README-1.png)
 
 
 
